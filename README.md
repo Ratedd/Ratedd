@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Ratedd
+- 🌱 I’m currently learning Blender just for fun
